@@ -1,0 +1,1 @@
+# rocketride-sgu-ai-thon-2026
